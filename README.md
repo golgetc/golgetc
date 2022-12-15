@@ -1,0 +1,2 @@
+- Hi, I’m Çağdaş Kaya
+- Father, human, on the path of science, traveler.
